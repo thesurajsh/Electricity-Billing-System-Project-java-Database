@@ -2,8 +2,8 @@
 Electricity Billing is now one of the imp parameter in the todays , and now s days ṭhere is scam is happend due to some problems , so i try to Solve that.
 
 
-![download](https://github.com/user-attachments/assets/68143622-1f22-48b6-9f69-dc06a98a2537)
 
+![0_gtY-llyEbkeoS1Sp](https://github.com/user-attachments/assets/88a95891-fd31-42e3-8f6c-36a95644078e)
 
 
 
